@@ -1,4 +1,0 @@
-nimamaipi
-
-
-wo caoni mamaipi
